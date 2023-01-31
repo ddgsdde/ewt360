@@ -16,3 +16,6 @@
 
 ## 编写说明
 * 制作者：landuoguo  
+
+自助使用：https://ddg1.tk
+如遇网站问题请咨询ddg5388@outlook.com
